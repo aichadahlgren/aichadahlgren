@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aichadahlgren
-- 👀 I’m interested in traveling, painting, exercise and computers.
+- 👀 I’m interested in techic, travel and fashion.
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on future collegues and work places.
 - 📫 How to reach me aichadahlgren@gmail.com
